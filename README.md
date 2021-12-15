@@ -1,0 +1,2 @@
+# Best-executive-education-program
+Cornell Sathguru Executive Educating has designed a digitally delivered live program for the seed industry professionals. The course perfectly blends technology, strategic, regulatory and market elements through an intensive 6 day exposure. The participants will gain exposure in aligning various forces influencing seed industry dynamics and prepare themselves to gain and retain competitive advantage.
